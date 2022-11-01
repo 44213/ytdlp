@@ -241,7 +241,7 @@ Küppersbusch TV
 
 ### [O]
 
-### (#P)
+### [P]
 [PrawicowyInternet](https://www.youtube.com/c/PrawicowyinternetPl)
 
 Kanał YouTube Dariusza Mateckiego - zapraszam do oglądania i subskrybowania!  
