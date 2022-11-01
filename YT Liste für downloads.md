@@ -27,17 +27,17 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 ### (#5)
 
-[56k - früher war alles langsamer] (https://www.youtube.com/channel/UCtZUnWLTljiUlLO-FkptalQ)
+[56k - früher war alles langsamer](https://www.youtube.com/channel/UCtZUnWLTljiUlLO-FkptalQ)
 
-[6](#6)
+### (#6)
 
 ### (#7)
 
 7 metrów pod ziemią
 
-[8](#8)
+### (#8)
 
-[9](#9)
+### (#9)
 
 ### [A]
 
