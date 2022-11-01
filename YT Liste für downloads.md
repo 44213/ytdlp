@@ -8,6 +8,7 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 
 ### My Great Heading {#0}
+[Heading IDs](#0)
 
 [1](#1)
 
