@@ -259,7 +259,7 @@ Beigetreten 16.11.2008
 
 ### [Q]
 
-### (#R)
+### [R]
 
 [Rafał Otoka-Frąckiewicz](https://www.youtube.com/user/rafalhubert)
 
