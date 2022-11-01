@@ -70,7 +70,7 @@ AUF DEM ROTEN STUHL
 
 
 
-[B](#B)
+### [B]
 
 Bass Nation
 
@@ -93,7 +93,7 @@ BÜNDNIS 90⧸DIE GRÜNEN
 BüSo – Bürgerrechtsbewegung Solidarität
 
 
-[C](#C)
+### [C]
 
 Cashkurs.com
 
@@ -113,7 +113,7 @@ Copernicus
 
 Corinna Miazga MdB
 
-[D](#D)
+### [D]
 
 [E](#E)
 
