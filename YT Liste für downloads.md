@@ -101,6 +101,22 @@ AUF DEM ROTEN STUHL
 ### (#P)
 [PrawicowyInternet](https://www.youtube.com/c/PrawicowyinternetPl)
 
+Kanał YouTube Dariusza Mateckiego - zapraszam do oglądania i subskrybowania!  
+W archiwach kanału (istnieje juz przeszło dziesięć lat) znajdziecie wiele wypowiedzi i nagrań przedstawicieli szeroko pojętej prawicy.
+
+| Statistiken |
+| Beigetreten | 16.11.2008 |
+| Aufrufe | 108.081.130 | 
+150.000 Abonnenten  
+   
+
+| foo | bar |
+| Beigetreten | 16.11.2008 |
+| Aufrufe | 108.081.130 |
+| Abonnenten | 150.000 |
+| Videos | 5.048 |
+
+
 [Q](#Q)
 
 [R](#R)
