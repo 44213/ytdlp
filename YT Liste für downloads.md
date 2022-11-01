@@ -115,19 +115,123 @@ Corinna Miazga MdB
 
 ### [D]
 
+Daniele Ganser
+
+DER SPIEGEL
+
+DER STANDARD
+
+Deutsch plus
+
+Deutscher Bundestag
+
+DIE DA OBEN!
+
+Dr. Aaron Brückner ｜ Andersmacher Podcast
+
+Dr. Johannes Hartl
+
+DWC Digitaler Wirtschaftsclub
+
 ### [E]
+
+Echa Świata
+
+eMisjaTv
+
+Enlinado
+
+Entrepreneur University
 
 ### [F]
 
+FAIR TALK
+
+faz
+
+FDP
+
+Finansowy Preppers
+
+FPÖ TV
+
+Fraktion DIE LINKE. im Bundestag
+
+Fundacja Panteon
+
 ### [G]
+
+GadowskiTV
+
+Gerhard Wisnewski
+
+głos racjonalny
+
+Gottfried Curio
+
+Grigori Kalinski
+
+GROSSE FREIHEIT TV
+
+Grzegorz Braun
+
+Grzegorz Braun WRW
+
+Gunnar Kaiser
 
 ### [H]
 
+HISTORIA REALNA
+
+Home Office
+
 ### [I]
+
+iAGRO TV
+
+Imponderabilia
+
+IPNtvPL
 
 ### [J]
 
+Janek Pospieszalski #WARTO
+
+Jasmin Kosubek
+
+Jens Lehrich
+
+Judith Steiner  - Videos mit Wirkung
+
+Jung & Naiv
+
+Junge Freiheit
+
+Jüdisches Forum
+
 ### [K]
+
+kanal schnellroda
+
+Kanał Polityczny
+
+Kancelaria Premiera
+
+KATH.NET - Katholische Internetzeitung
+
+klagemauerTV
+
+Konfederacja
+
+Krzysztof Sarnecki
+
+Ks. Tadeusz Isakowicz-Zaleski
+
+Ksiądz Michał Chaciński
+
+Ku Bogu
+
+Küppersbusch TV
 
 ### [L]
 
