@@ -27,7 +27,7 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 ### (#5)
 
-56k - früher war alles langsamer
+[56k - früher war alles langsamer] (https://www.youtube.com/channel/UCtZUnWLTljiUlLO-FkptalQ)
 
 [6](#6)
 
