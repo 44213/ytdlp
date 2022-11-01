@@ -110,12 +110,15 @@ W archiwach kanału (istnieje juz przeszło dziesięć lat) znajdziecie wiele wy
 150.000 Abonnenten  
    
 
-| foo | bar |
 | Beigetreten | 16.11.2008 |
+| --- | --- |
 | Aufrufe | 108.081.130 |
 | Abonnenten | 150.000 |
 | Videos | 5.048 |
 
+| foo | bar |
+| --- | --- |
+| baz | bim |
 
 [Q](#Q)
 
