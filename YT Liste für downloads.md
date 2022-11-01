@@ -23,13 +23,13 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 4Mens TV
 
-[5](#5)
+### (#5)
 
 56k - früher war alles langsamer
 
 [6](#6)
 
-[7](#7)
+### (#7)
 
 7 metrów pod ziemią
 
@@ -37,7 +37,7 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 [9](#9)
 
-[A](#A)
+### [A]
 
 Abp Jan Pawel Lenga
 
