@@ -9,13 +9,13 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 
 
-[0](#0)
+### [0]
 
-[1](#1)
+### [1]
 
-[2](#2)
+### [2]
 
-[3](#3)
+### [3]
 
 ### [4]
 
@@ -24,19 +24,19 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 4Mens TV
 
-### (#5)
+### [5]
 
 [56k - früher war alles langsamer](https://www.youtube.com/channel/UCtZUnWLTljiUlLO-FkptalQ)
 
-### (#6)
+### [6]
 
-### (#7)
+### [7]
 
 7 metrów pod ziemią
 
-### (#8)
+### [8]
 
-### (#9)
+### [9]
 
 ### [A]
 
