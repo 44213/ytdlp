@@ -409,6 +409,8 @@ RTV Regionalfernsehen
 
 ### [S]
 
+Sahra Wagenknecht
+
 ### [T]
 
 ### [U]
