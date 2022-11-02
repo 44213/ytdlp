@@ -305,8 +305,42 @@ NZZ Standpunkte
 
 ### [O]
 
+office cjm-media
+
+Ola Gościniak
+
+Opactwo Benedyktynów w Tyńcu
+
+OrdoIuris
+
 ### [P]
-[PrawicowyInternet](https://www.youtube.com/c/PrawicowyinternetPl)
+
+Pan Nikt
+
+Patryk Jaki
+
+PCh24TV · Polonia Christiana
+
+Philipp Amthor ｜ Bundestagsreden
+
+phoenix
+
+PiotrSkargaTV
+
+PL1 TV
+
+Polska Chata Biskupin - Matka Kurka nadaje
+
+Polskie Radio
+
+Polskie Sprawy
+
+PolskieRadio24_pl
+
+PorozmawiajmyTV
+
+
+#### [PrawicowyInternet](https://www.youtube.com/c/PrawicowyinternetPl)
 
 Kanał YouTube Dariusza Mateckiego - zapraszam do oglądania i subskrybowania!  
 W archiwach kanału (istnieje juz przeszło dziesięć lat) znajdziecie wiele wypowiedzi i nagrań przedstawicieli szeroko pojętej prawicy.
@@ -320,12 +354,31 @@ Beigetreten 16.11.2008
 | Abonnenten | 150.000 |
 | Videos | 5.048 |
 
+Pro vita bona
+
+Prof. Adam Wielomski. Naukowo o polityce
+
+Prof. Dr. Christian Rieck
+
+Programmieren mit Mario
+
+Prophet 
+
+Prorok
 
 ### [Q]
 
+Quest for English
+
 ### [R]
 
-[Rafał Otoka-Frąckiewicz](https://www.youtube.com/user/rafalhubert)
+Radio Maryja
+
+Radio Naukowe
+
+Radio WNET
+
+#### [Rafał Otoka-Frąckiewicz](https://www.youtube.com/user/rafalhubert)
 
 Oficjalny kanał polityko.com i pitu-pitu.pl
 
@@ -338,6 +391,21 @@ Beigetreten 06.08.2007
 | Abonnenten | 72.700 |
 | Videos |  |
 
+Rafał Ziemkiewicz
+
+RedeFabrik - Kommunikation & Charisma
+
+reitschuster de
+
+Reset Obywatelski
+
+re：publica
+
+Rosa-Luxemburg-Stiftung
+
+RPP Institut
+
+RTV Regionalfernsehen
 
 ### [S]
 
