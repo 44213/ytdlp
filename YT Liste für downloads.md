@@ -241,6 +241,10 @@ Langusta na palmie
 
 Lars Bobach
 
+Łukasz Ciechański
+
+Łukasz Warzecha
+
 ### [M]
 
 Maciej Wieczorek
@@ -425,6 +429,8 @@ Setzen, Sechs!
 
 Silberjunge Thorsten Schulte
 
+Śmiem Wątpić
+
 So geht YouTube
 
 Sommer
@@ -451,20 +457,116 @@ Superstacja
 
 Suwerenny PL
 
+Świadkowie Epoki
+
+Świat Rolnika
+
 SWT tv
 
 ### [T]
 
+tagentv
 
+TAKT. TV
+
+TARNOGORSKI
+
+Tata Czyta
+
+Telewizja Republika
+
+Telewizja wPolsce
+
+Teologia Polityczna
+
+Thora in Frankfurt
+
+Tichys Einblick
+
+Tim Kellner
+
+Tomasz Gryguć
+
+Tomasz Sommer
+
+Tomasz Sommer EXTRA
+
+Tomasz Sommer O
+
+TV LUBUSZAN
+
+TV Wolna Polska
+
+TV.Berlin - Der Hauptstadtsender
+
+TVP Info
+
+TVP Niezależna Telewizja Internetowa
+
+Tygodnik DoRzeczy
 
 ### [U]
 
+Ulrik von
+
+UM Politics
+
+Uniwersytet Warszawski
+
 ### [V]
 
+Vlog No Copyright Music
+
 ### [W]
+
+WBS LEGAL
+
+WELT
+
+WELT Nachrichtensender
+
+Westend Verlag
+
+WIR - Wissen ist relevant
+
+wirtschaft tv
+
+Wissensmanufaktur
+
+Wojciech Cejrowski
+
+Wojna Idei
+
+Wolność TV
+
+Wolność w Remoncie – WEI
+
+Wroński
+
+wSejmieTv
+
+Wszechnica FWW
+
+www.proroctwo.com.pl
+
+Wydawnictwo Uniwersytetu Łódzkiego
 
 ### [X]
 
 ### [Y]
 
+Y-Kollektiv
+
 ### [Z]
+
+Z P B P
+
+Zaufana Trzecia Strona
+
+Zbigniew Stonoga
+
+ZDFheute Nachrichten
+
+ZENON NOWAK- STUDIO ZN
+
+ZentralratderJuden
