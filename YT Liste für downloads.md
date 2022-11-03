@@ -19,10 +19,10 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 ### [4]
 
-[451 Grad](https://www.youtube.com/c/451Grad)
+#### [451 Grad](https://www.youtube.com/c/451Grad)
 
 
-4Mens TV
+#### 4Mens TV
 
 ### [5]
 
@@ -32,7 +32,7 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 ### [7]
 
-7 metrów pod ziemią
+#### 7 metrów pod ziemią
 
 ### [8]
 
@@ -40,309 +40,308 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 ### [A]
 
-Abp Jan Pawel Lenga
+#### Abp Jan Pawel Lenga
 
-Achgut.Pogo
+#### Achgut.Pogo
 
-Achtung, Reichelt!
+#### Achtung, Reichelt!
 
-Ad Arma
+#### Ad Arma
 
-AfD-Fraktion Bundestag
+#### AfD-Fraktion Bundestag
 
-allesaufdentisch
+#### allesaufdentisch
 
-Andersdenken
+#### Andersdenken
 
-annalovinglanguages
+#### annalovinglanguages
 
-Anti Spiegel
+#### Anti Spiegel
 
-Argumentorik： Menschen Überzeugen mit Wlad
+#### Argumentorik： Menschen Überzeugen mit Wlad
 
-ARTEde
+#### ARTEde
 
-asmeredakcja
+#### asmeredakcja
 
-Audio Library — Music for content creators
+#### Audio Library — Music for content creators
 
-AUF DEM ROTEN STUHL
+#### AUF DEM ROTEN STUHL
 
 
 
 ### [B]
 
-Bass Nation
+#### Bass Nation
 
-Bądź Na Bieżąco
+#### Bądź Na Bieżąco
 
-Bibliothek des Konservatismus
+#### Bibliothek des Konservatismus
 
-Blickwinkel KUNDE von & mit Dr. Oliver Ratajczak
+#### Blickwinkel KUNDE von & mit Dr. Oliver Ratajczak
 
-Blogpressportal
+#### Blogpressportal
 
-Boris Reitschuster
+#### Boris Reitschuster
 
-Bundesrat Deutschland
+#### Bundesrat Deutschland
 
-Bundesregierung
+#### Bundesregierung
 
-BÜNDNIS 90⧸DIE GRÜNEN
+#### BÜNDNIS 90⧸DIE GRÜNEN
 
-BüSo – Bürgerrechtsbewegung Solidarität
+#### BüSo – Bürgerrechtsbewegung Solidarität
 
 
 ### [C]
 
-Cashkurs.com
+#### Cashkurs.com
 
-CDU⧸CSU-Bundestagsfraktion
+#### CDU⧸CSU-Bundestagsfraktion
 
-Chill Nation
+#### Chill Nation
 
-Christian Bischoff
+#### Christian Bischoff
 
-Christian Vlog
+#### Christian Vlog
 
-Cicero Online
+#### Cicero Online
 
-COMPACTTV
+#### COMPACTTV
 
-Copernicus
+#### Copernicus
 
-Corinna Miazga MdB
+#### Corinna Miazga MdB
 
 ### [D]
 
-Daniele Ganser
+#### Daniele Ganser
 
-DER SPIEGEL
+#### DER SPIEGEL
 
-DER STANDARD
+#### DER STANDARD
 
-Deutsch plus
+#### Deutsch plus
 
-Deutscher Bundestag
+#### Deutscher Bundestag
 
-DIE DA OBEN!
+#### DIE DA OBEN!
 
-Dr. Aaron Brückner ｜ Andersmacher Podcast
+#### Dr. Aaron Brückner ｜ Andersmacher Podcast
 
-Dr. Johannes Hartl
+#### Dr. Johannes Hartl
 
-DWC Digitaler Wirtschaftsclub
+#### DWC Digitaler Wirtschaftsclub
 
 ### [E]
 
-Echa Świata
+#### Echa Świata
 
-eMisjaTv
+#### eMisjaTv
 
-Enlinado
+#### Enlinado
 
-Entrepreneur University
+#### Entrepreneur University
 
 ### [F]
 
-FAIR TALK
+#### FAIR TALK
 
-faz
+#### faz
 
-FDP
+#### FDP
 
-Finansowy Preppers
+#### Finansowy Preppers
 
-FPÖ TV
+#### FPÖ TV
 
-Fraktion DIE LINKE. im Bundestag
+#### Fraktion DIE LINKE. im Bundestag
 
-Fundacja Panteon
+#### Fundacja Panteon
 
 ### [G]
 
-GadowskiTV
+#### GadowskiTV
 
-Gerhard Wisnewski
+#### Gerhard Wisnewski
 
-głos racjonalny
+#### głos racjonalny
 
-Gottfried Curio
+#### Gottfried Curio
 
-Grigori Kalinski
+#### Grigori Kalinski
 
-GROSSE FREIHEIT TV
+#### GROSSE FREIHEIT TV
 
-Grzegorz Braun
+#### Grzegorz Braun
 
-Grzegorz Braun WRW
+#### Grzegorz Braun WRW
 
-Gunnar Kaiser
+#### Gunnar Kaiser
 
 ### [H]
 
-HISTORIA REALNA
+#### HISTORIA REALNA
 
-Home Office
+#### Home Office
 
 ### [I]
 
-iAGRO TV
+#### iAGRO TV
 
-Imponderabilia
+#### Imponderabilia
 
-IPNtvPL
+#### IPNtvPL
 
 ### [J]
 
-Janek Pospieszalski #WARTO
+#### Janek Pospieszalski #WARTO
 
-Jasmin Kosubek
+#### Jasmin Kosubek
 
-Jens Lehrich
+#### Jens Lehrich
 
-Judith Steiner  - Videos mit Wirkung
+#### Judith Steiner  - Videos mit Wirkung
 
-Jung & Naiv
+#### Jung & Naiv
 
-Junge Freiheit
+#### Junge Freiheit
 
-Jüdisches Forum
+#### Jüdisches Forum
 
 ### [K]
 
-kanal schnellroda
+#### kanal schnellroda
 
-Kanał Polityczny
+#### Kanał Polityczny
 
-Kancelaria Premiera
+#### Kancelaria Premiera
 
-KATH.NET - Katholische Internetzeitung
+#### KATH.NET - Katholische Internetzeitung
 
-klagemauerTV
+#### klagemauerTV
 
-Konfederacja
+#### Konfederacja
 
-Krzysztof Sarnecki
+#### Krzysztof Sarnecki
 
-Ks. Tadeusz Isakowicz-Zaleski
+#### Ks. Tadeusz Isakowicz-Zaleski
 
-Ksiądz Michał Chaciński
+#### Ksiądz Michał Chaciński
 
-Ku Bogu
+#### Ku Bogu
 
-Küppersbusch TV
+#### Küppersbusch TV
 
 ### [L]
 
-Langemann Medien
+#### Langemann Medien
 
-Langusta na palmie
+#### Langusta na palmie
 
-Lars Bobach
+#### Lars Bobach
 
-Łukasz Ciechański
+#### Łukasz Ciechański
 
-Łukasz Warzecha
+#### Łukasz Warzecha
 
 ### [M]
 
-Maciej Wieczorek
+#### Maciej Wieczorek
 
-Magna Polonia
+#### Magna Polonia
 
-Marc Friedrich
+#### Marc Friedrich
 
-Marc Galal
+#### Marc Galal
 
-Marcin Rola
+#### Marcin Rola
 
-Marian Kowalski
+#### Marian Kowalski
 
-Martin Wehrle： Coaching- und Karrieretipps
+#### Martin Wehrle： Coaching- und Karrieretipps
 
-Mała Wielka Firma
+#### Mała Wielka Firma
 
-Media Narodowe
+#### Media Narodowe
 
-media.ccc.de
+#### media.ccc.de
 
-Michael Lüders
+#### Michael Lüders
 
-MICHAEL VOGT. TV
+#### MICHAEL VOGT. TV
 
-Monika Jaruzelska zaprasza
+#### Monika Jaruzelska zaprasza
 
-MOOC PolSys
+#### MOOC PolSys
 
 ### [N]
 
 #### na argumenty
 
-NachDenkSeiten
+#### #### NachDenkSeiten
 
-NAI Warszawa
+#### NAI Warszawa
 
-namzalezy.pl
+#### namzalezy.pl
 
-Narodowy Instytut Studiów Strategicznych
+#### Narodowy Instytut Studiów Strategicznych
 
-NCzasTV
+#### NCzasTV
 
-Neue Horizonte
+#### Neue Horizonte
 
-Neue Presse Agentur
+#### Neue Presse Agentur
 
-Neverforgetniki
+#### Neverforgetniki
 
-Niezależny Lublin
+#### Niezależny Lublin
 
-NoCopyrightSounds
+#### NoCopyrightSounds
 
-Nowa Konfederacja
+#### Nowa Konfederacja
 
-NuoFlix
+#### NuoFlix
 
-NZZ Podium Europa
+#### NZZ Podium Europa
 
-NZZ Standpunkte
+#### NZZ Standpunkte
 
 ### [O]
 
-office cjm-media
+#### office cjm-media
 
-Ola Gościniak
+#### Ola Gościniak
 
-Opactwo Benedyktynów w Tyńcu
+#### Opactwo Benedyktynów w Tyńcu
 
-OrdoIuris
+#### OrdoIuris
 
 ### [P]
 
-Pan Nikt
+#### Pan Nikt
 
-Patryk Jaki
+#### Patryk Jaki
 
-PCh24TV · Polonia Christiana
+#### PCh24TV · Polonia Christiana
 
-Philipp Amthor ｜ Bundestagsreden
+#### Philipp Amthor ｜ Bundestagsreden
 
-phoenix
+#### phoenix
 
-PiotrSkargaTV
+#### PiotrSkargaTV
 
-PL1 TV
+#### PL1 TV
 
-Polska Chata Biskupin - Matka Kurka nadaje
+#### Polska Chata Biskupin - Matka Kurka nadaje
 
-Polskie Radio
+#### Polskie Radio
 
-Polskie Sprawy
+#### Polskie Sprawy
 
-PolskieRadio24_pl
+#### PolskieRadio24_pl
 
-PorozmawiajmyTV
-
+#### PorozmawiajmyTV
 
 #### [PrawicowyInternet](https://www.youtube.com/c/PrawicowyinternetPl)
 
@@ -358,29 +357,29 @@ Beigetreten 16.11.2008
 | Abonnenten | 150.000 |
 | Videos | 5.048 |
 
-Pro vita bona
+#### Pro vita bona
 
-Prof. Adam Wielomski. Naukowo o polityce
+#### Prof. Adam Wielomski. Naukowo o polityce
 
-Prof. Dr. Christian Rieck
+#### Prof. Dr. Christian Rieck
 
-Programmieren mit Mario
+#### Programmieren mit Mario
 
-Prophet 
+#### Prophet 
 
-Prorok
+#### Prorok
 
 ### [Q]
 
-Quest for English
+#### Quest for English
 
 ### [R]
 
-Radio Maryja
+#### Radio Maryja
 
-Radio Naukowe
+#### Radio Naukowe
 
-Radio WNET
+#### Radio WNET
 
 #### [Rafał Otoka-Frąckiewicz](https://www.youtube.com/user/rafalhubert)
 
@@ -395,178 +394,178 @@ Beigetreten 06.08.2007
 | Abonnenten | 72.700 |
 | Videos |  |
 
-Rafał Ziemkiewicz
+#### Rafał Ziemkiewicz
 
-RedeFabrik - Kommunikation & Charisma
+#### RedeFabrik - Kommunikation & Charisma
 
-reitschuster de
+#### reitschuster de
 
-Reset Obywatelski
+#### Reset Obywatelski
 
-re：publica
+#### re：publica
 
-Rosa-Luxemburg-Stiftung
+#### Rosa-Luxemburg-Stiftung
 
-RPP Institut
+#### RPP Institut
 
-RTV Regionalfernsehen
+#### RTV Regionalfernsehen
 
 ### [S]
 
-Sahra Wagenknecht
+#### Sahra Wagenknecht
 
-Salon24
+#### Salon24
 
-Salve NET
+#### Salve NET
 
-Salve TV
+#### Salve TV
 
-seimutigTV
+#### seimutigTV
 
-ServusTV On
+#### ServusTV On
 
-Setzen, Sechs!
+#### Setzen, Sechs!
 
-Silberjunge Thorsten Schulte
+#### Silberjunge Thorsten Schulte
 
-Śmiem Wątpić
+#### Śmiem Wątpić
 
-So geht YouTube
+#### So geht YouTube
 
-Sommer
+#### Sommer
 
-SośnierzTV
+#### SośnierzTV
 
-SPD-Fraktion im Bundestag
+#### SPD-Fraktion im Bundestag
 
-SRF Kultur Sternstunden
+#### SRF Kultur Sternstunden
 
-Stanisław Krajski PL
+#### Stanisław Krajski PL
 
-Stanisław Krajski TV
+#### Stanisław Krajski TV
 
-Stanisław Michalkiewicz
+#### Stanisław Michalkiewicz
 
-Steimles Welt
+#### Steimles Welt
 
-Strategy&Future
+#### Strategy&Future
 
-Super Express 2
+#### Super Express 2
 
-Superstacja
+#### Superstacja
 
-Suwerenny PL
+#### Suwerenny PL
 
-Świadkowie Epoki
+#### Świadkowie Epoki
 
-Świat Rolnika
+#### Świat Rolnika
 
-SWT tv
+#### SWT tv
 
 ### [T]
 
-tagentv
+#### tagentv
 
-TAKT. TV
+#### TAKT. TV
 
-TARNOGORSKI
+#### TARNOGORSKI
 
-Tata Czyta
+#### Tata Czyta
 
-Telewizja Republika
+#### Telewizja Republika
 
-Telewizja wPolsce
+#### Telewizja wPolsce
 
-Teologia Polityczna
+#### Teologia Polityczna
 
-Thora in Frankfurt
+#### Thora in Frankfurt
 
-Tichys Einblick
+#### Tichys Einblick
 
-Tim Kellner
+#### Tim Kellner
 
-Tomasz Gryguć
+#### Tomasz Gryguć
 
-Tomasz Sommer
+#### Tomasz Sommer
 
-Tomasz Sommer EXTRA
+#### Tomasz Sommer EXTRA
 
-Tomasz Sommer O
+#### Tomasz Sommer O
 
-TV LUBUSZAN
+#### TV LUBUSZAN
 
-TV Wolna Polska
+#### TV Wolna Polska
 
-TV.Berlin - Der Hauptstadtsender
+#### TV.Berlin - Der Hauptstadtsender
 
-TVP Info
+#### TVP Info
 
-TVP Niezależna Telewizja Internetowa
+#### TVP Niezależna Telewizja Internetowa
 
-Tygodnik DoRzeczy
+#### Tygodnik DoRzeczy
 
 ### [U]
 
-Ulrik von
+#### Ulrik von
 
-UM Politics
+#### UM Politics
 
-Uniwersytet Warszawski
+#### Uniwersytet Warszawski
 
 ### [V]
 
-Vlog No Copyright Music
+#### Vlog No Copyright Music
 
 ### [W]
 
-WBS LEGAL
+#### WBS LEGAL
 
-WELT
+#### WELT
 
-WELT Nachrichtensender
+#### WELT Nachrichtensender
 
-Westend Verlag
+#### Westend Verlag
 
-WIR - Wissen ist relevant
+#### WIR - Wissen ist relevant
 
-wirtschaft tv
+#### wirtschaft tv
 
-Wissensmanufaktur
+#### Wissensmanufaktur
 
-Wojciech Cejrowski
+#### Wojciech Cejrowski
 
-Wojna Idei
+#### Wojna Idei
 
-Wolność TV
+#### Wolność TV
 
-Wolność w Remoncie – WEI
+#### Wolność w Remoncie – WEI
 
-Wroński
+#### Wroński
 
-wSejmieTv
+#### wSejmieTv
 
-Wszechnica FWW
+#### Wszechnica FWW
 
-www.proroctwo.com.pl
+#### www.proroctwo.com.pl
 
-Wydawnictwo Uniwersytetu Łódzkiego
+#### Wydawnictwo Uniwersytetu Łódzkiego
 
 ### [X]
 
 ### [Y]
 
-Y-Kollektiv
+#### Y-Kollektiv
 
 ### [Z]
 
-Z P B P
+#### Z P B P
 
-Zaufana Trzecia Strona
+#### Zaufana Trzecia Strona
 
-Zbigniew Stonoga
+#### Zbigniew Stonoga
 
-ZDFheute Nachrichten
+#### ZDFheute Nachrichten
 
-ZENON NOWAK- STUDIO ZN
+#### ZENON NOWAK- STUDIO ZN
 
-ZentralratderJuden
+#### ZentralratderJuden
