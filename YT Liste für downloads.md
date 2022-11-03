@@ -413,7 +413,49 @@ Sahra Wagenknecht
 
 Salon24
 
+Salve NET
+
+Salve TV
+
+seimutigTV
+
+ServusTV On
+
+Setzen, Sechs!
+
+Silberjunge Thorsten Schulte
+
+So geht YouTube
+
+Sommer
+
+SośnierzTV
+
+SPD-Fraktion im Bundestag
+
+SRF Kultur Sternstunden
+
+Stanisław Krajski PL
+
+Stanisław Krajski TV
+
+Stanisław Michalkiewicz
+
+Steimles Welt
+
+Strategy&Future
+
+Super Express 2
+
+Superstacja
+
+Suwerenny PL
+
+SWT tv
+
 ### [T]
+
+
 
 ### [U]
 
