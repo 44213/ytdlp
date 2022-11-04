@@ -42,9 +42,9 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 #### [Abp Jan Pawel Lenga](https://www.youtube.com/c/AbpJanPawelLengaPL)
 
-#### Achgut.Pogo
+#### [Achgut.Pogo](https://www.youtube.com/c/AchgutPogo/)
 
-#### Achtung, Reichelt!
+#### Achtung, Reichelt! 
 
 #### Ad Arma
 
@@ -447,6 +447,8 @@ Beigetreten 06.08.2007
 #### Stanisław Michalkiewicz
 
 #### Steimles Welt
+
+#### [Steinhoefel](https://www.youtube.com/user/Steinhoefel)
 
 #### Strategy&Future
 
