@@ -40,7 +40,7 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 ### [A]
 
-#### Abp Jan Pawel Lenga
+#### [Abp Jan Pawel Lenga](https://www.youtube.com/c/AbpJanPawelLengaPL)
 
 #### Achgut.Pogo
 
