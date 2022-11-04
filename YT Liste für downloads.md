@@ -53,11 +53,11 @@ Beigetreten 08.06.2020
 
 #### [Achgut.Pogo](https://www.youtube.com/c/AchgutPogo/)
 
-Beigetreten 08.06.2020
+Beigetreten 04.04.2017
 
 | Statistiken | Datum |
 | --- | --- |
-| Erfasst am | 04.04.2017 |
+| Erfasst am | 04.11.2022 |
 | Aufrufe | 30.543.913 |
 | Abonnenten | 116.000 |
 | Videos | 700 |
