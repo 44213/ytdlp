@@ -42,9 +42,27 @@ Das ist meine Liste mit YT Kanälen für YTDLP
 
 #### [Abp Jan Pawel Lenga](https://www.youtube.com/c/AbpJanPawelLengaPL)
 
+Beigetreten 08.06.2020
+
+| Statistiken | Datum |
+| --- | --- |
+| Erfasst am | 04.11.2022 |
+| Aufrufe | 3.426.355 |
+| Abonnenten | 35.300 |
+| Videos | 80 |
+
 #### [Achgut.Pogo](https://www.youtube.com/c/AchgutPogo/)
 
-#### Achtung, Reichelt! 
+Beigetreten 08.06.2020
+
+| Statistiken | Datum |
+| --- | --- |
+| Erfasst am | 04.04.2017 |
+| Aufrufe | 30.543.913 |
+| Abonnenten | 116.000 |
+| Videos | 700 |
+
+#### [Achtung, Reichelt!](https://www.youtube.com/c/AchtungReichelt/)
 
 #### Ad Arma
 
