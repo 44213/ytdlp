@@ -68,6 +68,8 @@ Beigetreten 04.04.2017
 
 #### AfD-Fraktion Bundestag
 
+#### [ahavta - Begegnungen](https://www.youtube.com/c/ahavtaBegegnungen)
+
 #### allesaufdentisch
 
 #### Andersdenken
@@ -155,11 +157,17 @@ Beigetreten 04.04.2017
 
 #### Echa Świata
 
+#### [eingeSCHENKt.tv](https://www.youtube.com/c/eingeSCHENKTtv)
+
+#### [eingeSCHENKt-TV - Der Zweitkanal](https://www.youtube.com/channel/UCASe3TOppvSWISN2WTE88VQ)
+
 #### eMisjaTv
 
 #### Enlinado
 
 #### Entrepreneur University
+
+### [Evangelische Hochschule Nürnberg (EVHN)](https://www.youtube.com/user/evhnvideo)
 
 ### [F]
 
@@ -522,6 +530,8 @@ Beigetreten 06.08.2007
 
 #### TVP Niezależna Telewizja Internetowa
 
+#### [tvPolska](https://www.youtube.com/channel/UCcvlt6D6RzU1s8ssfcvkxhA)
+
 #### Tygodnik DoRzeczy
 
 ### [U]
@@ -533,6 +543,8 @@ Beigetreten 06.08.2007
 #### Uniwersytet Warszawski
 
 ### [V]
+
+### [Vermietertagebuch - Alexander Raue](https://www.youtube.com/c/Vermietertagebuch)
 
 #### Vlog No Copyright Music
 
