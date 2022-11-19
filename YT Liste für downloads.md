@@ -301,6 +301,8 @@ Beigetreten 04.04.2017
 
 #### MOOC PolSys
 
+#### [Myśl Polska](https://www.youtube.com/@myslpolska7617)
+
 ### [N]
 
 #### na argumenty
